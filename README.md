@@ -1,2 +1,0 @@
-# profi
-E boi
